@@ -2,7 +2,7 @@
 
 To get started in helping you with price negotiations, watch my videos on TikTok: [@joshthecarguy.com](https://www.tiktok.com/@joshthecarguy).
 
-If you have found any of my information valuable, donations are appreciated via Cash App: [$joshthecarguy21](https://cash.app/$joshthecarguy21).
+If you have found any of my information valuable, donations are appreciated via Cash App at [$joshthecarguy21](https://cash.app/$joshthecarguy21) and Venmo at [joshthecarguy](https://venmo.com/joshthecarguy).
 
 ## Schedule a call with me to get personalized advice!
 
